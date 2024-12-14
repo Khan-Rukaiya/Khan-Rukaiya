@@ -49,7 +49,7 @@ I am always seeking to improve and build new things. Here's what I'm focusing on
 
 I am always open to learning and collaborating with others. Feel free to reach out to me:
 
-- 📧 Email: rukaiyakhan@example.com
+- 📧 Email: rukaiyakhan2810@gmail.com
 
 Thank you for visiting my GitHub! Let's build something amazing together! 🚀
 
